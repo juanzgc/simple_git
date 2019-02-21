@@ -1,1 +1,1 @@
-1 Juan Zapata Gomez
+Juan Zapata Gomez juanzgc@bu.edu juanzgc@gmail.com
